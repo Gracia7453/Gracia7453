@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Gracia7453
+- 👀 I’m interested in gaming
+- 🌱 I’m currently learning cyber marketing 
+- 💞️ I’m looking to collaborate on work 
+- 📫 How to reach me via tiktok graciaspammzzzz
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I'm very flexible 
